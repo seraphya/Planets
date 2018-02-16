@@ -2,7 +2,7 @@
 
 1. What colour is Uranus and why?
    
-   Answer: 
+   Answer: pale blue
      
 2. Why was Pluto demoted from being a planet?
 
