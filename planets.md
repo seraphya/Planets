@@ -6,7 +6,7 @@
      
 2. Why was Pluto demoted from being a planet?
 
-   Answer: 
+   Answer: Too many other objects were bigger and it didn't clear its orbit
    
 3. Which astronomical body in our Solar System has the largest gravitational pull and what is its gravitational pull?
 
