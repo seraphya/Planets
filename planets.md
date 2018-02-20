@@ -10,7 +10,7 @@
    
 3. Which astronomical body in our Solar System has the largest gravitational pull and what is its gravitational pull?
 
-   Answer: 
+   Answer: The sun with a gravitational pull of 274 m/s².
      
 4. Come up with a mnemonic to remember the 5 moons of Pluto and write it below.
    
